@@ -28,4 +28,4 @@ Skills and proble soving.
 -ETC
 
 
-# Thanks For View My Project
+# Thanks For Checking Out My Rroject! 
